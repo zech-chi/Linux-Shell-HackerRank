@@ -1,1 +1,1 @@
-![image](https://github.com/zakaria0101echifaouy/Linux-Shell-HackerRank/assets/108145379/56a79547-4261-47cf-8f53-26ad4b7c9ffe)
+![image](https://github.com/zakaria0101echifaouy/Linux-Shell-HackerRank/assets/108145379/426fa94c-1151-42d6-b362-5c19eac9671b)
